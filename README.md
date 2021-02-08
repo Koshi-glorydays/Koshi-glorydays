@@ -1,1 +1,1 @@
-# koshi-gloruydays
+# Koshi-glorydays
